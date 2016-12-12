@@ -72,7 +72,7 @@ We learn from the best - We took an exclusive tour in the Facebook HQ
 We're self-funded and stable. We pay the bills from our e-commerce profits. However, we receive a number of investment offers every month, so it's possible to take some investment in the future.
 
 ![Our funzone](https://blog.ghostmonitor.com/wp-content/uploads/2016/02/IMG_0722.jpg) 
-We have a funzone - Try beting us in Darts! 
+We have a funzone - Try beating us in Darts! 
 
 ## **Perks**
 
